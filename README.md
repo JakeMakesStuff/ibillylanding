@@ -1,2 +1,2 @@
-# ibillylanding
-Coming soon/Informational page for IBILLY Media Group
+# ijakelanding
+Coming soon/Informational page for IJAKE Media Group. A knockoff of the IBILLY media group cause' meme.
